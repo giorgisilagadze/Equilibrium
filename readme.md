@@ -1,0 +1,1 @@
+# Tittle: Equilibrium page
